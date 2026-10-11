@@ -4,7 +4,7 @@
 <img width="2170" height="725" alt="7C63BE49-2A67-4C59-836F-50849247F9A7" src="https://github.com/user-attachments/assets/87400b72-9c99-4061-89bc-bd018f01d806" />
 
  
-*[SX WELCOME ](https://discord.gg/AUU2BAkAX)*
+  *[SX WELCOME ](https://discord.gg/AUU2BAkAX)*
 
 
 <br>  
@@ -17,7 +17,7 @@ ${\textsf{\color{#BAC5E0} looks}}$ ${\textsf{\color{#CAD1E2}  like someone.}}$
     </tr>
   </table>
 
- ${\textsf{\color{#D3D9E8} 𓂃}}$ ${\textsf{\color{#F5E0C4} ࣪}}$ ${\textsf{\color{#BAC5E0} ˖}}$ [rentry](https://rentry.co/reiayanamichan?utm_source=Pinterest&utm_medium=organic) ${\textsf{\color{#BAC5E0}⁺}}$ ${\textsf{\color{#CAD1E2} ༝}}$ [strawpage](https://rizyyr.straw.page)
+ ${\textsf{\color{#D3D9E8} }}$ ${\textsf{\color{#F5E0C4} ࣪}}$ ${\textsf{\color{#BAC5E0} }}$ [rentry](https://rentry.co/reiayanamichan?utm_source=Pinterest&utm_medium=organic) ${\textsf{\color{#BAC5E0}⁺}}$ ${\textsf{\color{#CAD1E2} }}$ [strawpage](https://rizyyr.straw.page)
  
 
 
