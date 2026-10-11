@@ -16,7 +16,7 @@ ${\textsf{\color{#BAC5E0} looks}}$ ${\textsf{\color{#CAD1E2}  like someone.}}$
     </tr>
   </table>
 
- ${\textsf{\color{#D3D9E8} 𓂃}}$ ${\textsf{\color{#F5E0C4} ࣪}}$ ${\textsf{\color{#BAC5E0} ˖}}$ [rentry](https://rentry.co/reiayanamichan?utm_source=Pinterest&utm_medium=organic) ${\textsf{\color{#BAC5E0}⁺}}$ ${\textsf{\color{#CAD1E2} ༝}}$ [strawpage]<a href="https://rizyyr.straw.page"><img<img width="736" height="736" alt="بدون اسم152_20261011062342" src="https://github.com/user-attachments/assets/58bb4528-4924-4715-98a5-f647f9e8e1af" />
+ ${\textsf{\color{#D3D9E8} 𓂃}}$ ${\textsf{\color{#F5E0C4} ࣪}}$ ${\textsf{\color{#BAC5E0} ˖}}$ [rentry](https://rentry.co/reiayanamichan?utm_source=Pinterest&utm_medium=organic) ${\textsf{\color{#BAC5E0}⁺}}$ ${\textsf{\color{#CAD1E2} ༝}}$ [strawpage]<a href="https://rizyyr.straw.page"><img width="736" height="736" alt="بدون اسم152_20261011062342" src="https://github.com/user-attachments/assets/58bb4528-4924-4715-98a5-f647f9e8e1af" />
 
  ${\textsf{\color{#CAD1E2}⭑}}$ ${\textsf{\color{#FFFFFF}؛}}$
 
