@@ -1,9 +1,10 @@
 
 
 
-<img width="736" height="736" alt="Untitled128_20260922215706" src="https://github.com/user-attachments/assets/b187f230-0de2-4883-ac42-e570c67311dd" />
- 
+<img width="2170" height="725" alt="7C63BE49-2A67-4C59-836F-50849247F9A7" src="https://github.com/user-attachments/assets/87400b72-9c99-4061-89bc-bd018f01d806" />
 
+ 
+*[SX WELCOME ](https://discord.gg/AUU2BAkAX)*
 
 
 <br>  
@@ -16,7 +17,10 @@ ${\textsf{\color{#BAC5E0} looks}}$ ${\textsf{\color{#CAD1E2}  like someone.}}$
     </tr>
   </table>
 
- ${\textsf{\color{#D3D9E8} 𓂃}}$ ${\textsf{\color{#F5E0C4} ࣪}}$ ${\textsf{\color{#BAC5E0} ˖}}$ [rentry](https://rentry.co/reiayanamichan?utm_source=Pinterest&utm_medium=organic) ${\textsf{\color{#BAC5E0}⁺}}$ ${\textsf{\color{#CAD1E2} ༝}}$ [strawpage]<a href="https://rizyyr.straw.page"><img width="736" height="736" alt="بدون اسم152_20261011062342" src="https://github.com/user-attachments/assets/58bb4528-4924-4715-98a5-f647f9e8e1af" />
+ ${\textsf{\color{#D3D9E8} 𓂃}}$ ${\textsf{\color{#F5E0C4} ࣪}}$ ${\textsf{\color{#BAC5E0} ˖}}$ [rentry](https://rentry.co/reiayanamichan?utm_source=Pinterest&utm_medium=organic) ${\textsf{\color{#BAC5E0}⁺}}$ ${\textsf{\color{#CAD1E2} ༝}}$ [strawpage](https://rizyyr.straw.page)
+ 
+
+
 
  ${\textsf{\color{#CAD1E2}⭑}}$ ${\textsf{\color{#FFFFFF}؛}}$
 
