@@ -10,8 +10,8 @@
   <table>
     <tr>
       <td>
-<img src="https://i.postimg.cc/HWRGLgZT/1121446965373304983.webp" width="20">  ${\textsf{\color{#FFFFFF} When}}$ ${\textsf{\color{#D3D9E8} they}}$ ${\textsf{\color{#BAC5E0} hatin}}$ ${\textsf{\color{#CAD1E2} but}}$ ${\textsf{\color{#FFFFFF} I}}$ ${\textsf{\color{#D3D9E8} just}}$ <br>
-${\textsf{\color{#BAC5E0} be}}$ ${\textsf{\color{#CAD1E2} existin like}}$ 
+<img src="https://i.postimg.cc/HWRGLgZT/1121446965373304983.webp" width="20">  ${\textsf{\color{#FFFFFF} A calm,}}$ ${\textsf{\color{#D3D9E8} mysterious}}$ ${\textsf{\color{#BAC5E0} and}}$ ${\textsf{\color{#CAD1E2} somehow}}$ ${\textsf{\color{#FFFFFF}  distinctive personality}}$ ${\textsf{\color{#D3D9E8} that}}$ <br>
+${\textsf{\color{#BAC5E0} looks}}$ ${\textsf{\color{#CAD1E2}  like someone.}}$ 
       </td>
     </tr>
   </table>
