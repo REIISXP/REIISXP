@@ -26,6 +26,7 @@ ${\textsf{\color{#BAC5E0} looks}}$ ${\textsf{\color{#CAD1E2}  like someone.}}$
 
  ${\textsf{\color{#CAD1E2}⭑}}$ ${\textsf{\color{#FFFFFF}؛}}$
 
+<img width="400" height="400" alt="IMG_2301" src="https://github.com/user-attachments/assets/137df6a8-b922-4f58-a347-0f2dafff874d" />
 
 
 
