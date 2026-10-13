@@ -1,7 +1,9 @@
 
 
+<img width="1280" height="184" alt="IMG_2302" src="https://github.com/user-attachments/assets/c665e88f-981b-4e86-8f71-302246c8858a" />
 
-<img width="2170" height="725" alt="7C63BE49-2A67-4C59-836F-50849247F9A7" src="https://github.com/user-attachments/assets/87400b72-9c99-4061-89bc-bd018f01d806" />
+<img width="2172" height="724" alt="93575804-5319-40EA-B6A9-438687347D04" src="https://github.com/user-attachments/assets/83e50ce0-24e5-4ec7-9cf8-eab257387033" />
+
 
  
   *[SX WELCOME ](https://discord.gg/AUU2BAkAX)*
