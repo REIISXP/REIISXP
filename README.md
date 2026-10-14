@@ -3,8 +3,6 @@
 <img width="1280" height="184" alt="IMG_2302" src="https://github.com/user-attachments/assets/c665e88f-981b-4e86-8f71-302246c8858a" />
 
 <img width="400" height="400" alt="IMG_2301" src="https://github.com/user-attachments/assets/137df6a8-b922-4f58-a347-0f2dafff874d" />
-
-
  
   *[SX WELCOME ](https://discord.gg/AUU2BAkAX)*
 
