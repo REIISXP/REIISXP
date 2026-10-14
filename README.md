@@ -20,8 +20,3 @@ ${\textsf{\color{#BAC5E0} looks}}$ ${\textsf{\color{#CAD1E2}  like someone.}}$
       </td>
     </tr>
   </table>
-
-
-
-
-
