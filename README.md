@@ -1,6 +1,6 @@
 <img width="1500" height="500" alt="بدون اسم164_20261017203659" src="https://github.com/user-attachments/assets/4487f19a-6f94-4fbb-8c31-84494b74672a" />
 
-<img src="https://files.catbox.moe/7fz0c5.gif" width="25" height="25"> ${\color{#B3D2D0} I \space don't \space know \space what \space to \space feel \space or \space do \space at \space this \space time,}
+<img src="https://files.catbox.moe/7fz0c5.gif" width="25" height="25"> ${\color{#B3D2D0} I \space don't \space know \space what \space to \space feel \space or \space do \space at \space this \space time
 
  
 <br>  
