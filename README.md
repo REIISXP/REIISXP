@@ -1,4 +1,5 @@
-<img width="1548" height="1016" alt="E0B72575-6AE7-497A-A678-637D48C50A8F" src="https://github.com/user-attachments/assets/bdde9f8c-bf0a-4129-a3fe-615e3fa7fd2a" />
+<img width="1500" height="500" alt="بدون اسم164_20261017203659" src="https://github.com/user-attachments/assets/4487f19a-6f94-4fbb-8c31-84494b74672a" />
+
 
 
  
