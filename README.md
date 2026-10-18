@@ -10,3 +10,6 @@ ${\textsf{\color{#BAC5E0} looks}}$ ${\textsf{\color{#CAD1E2}  like someone.}}$
       </td>
     </tr>
   </table>
+  
+<a href="https://linquinttt76.straw.page/">  
+<img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/f688d86b-d3b6-4110-83c3-cf39b857ea47" />
