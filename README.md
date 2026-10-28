@@ -1,12 +1,13 @@
-<div align="center">
-<img
-  <a href=""><img src="https://i.postimg.cc/HL2ND7p2/54-Sem-Titulo-20260722125744.png" width="500" height="auto" align="auto"></img></a> <br>
-<a href=""><img src="https://i.postimg.cc/P51b0st1/53-Sem-Titulo-20260722124835.png" width="180" height="auto" align="auto"></img></a> <br>
+[![Typing SVG](https://typingsvg.vercel.app/api/svg?pause=2500&backgroundOpacity=0&border=false&cursorStyle=underline&deletionBehavior=clear&lines=%5B%7B%22text%22%3A%22i+think+i+might+fuck+around%5Cnand+get+shot+in+the+head+.+.+.+%22%2C%22font%22%3A%22Fira+Code%22%2C%22color%22%3A%22%23946f94%22%2C%22fontSize%22%3A21%2C%22typingSpeed%22%3A0.03333333333333333%2C%22deleteSpeed%22%3A0.025%2C%22lineHeight%22%3A1%7D%2C%7B%22text%22%3A%22%27cause+maybe+people+like+us%5Cnare+all+better+off+%5CnDEEEAAAAAAAAADDDDDD%22%2C%22color%22%3A%22%23cf7683%22%2C%22fontSize%22%3A24%2C%22typingSpeed%22%3A0.03333333333333333%2C%22deleteSpeed%22%3A0.025%2C%22lineHeight%22%3A1%7D%5D)](https://github.com/whiteSHADOW1234/TypingSVG)
+
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/f715d151-e2b2-4d69-9324-48e6d1cafca8" />
+</p>
 
   
-[Strawpage](https://linquinttt76.straw.page)
-ㅤ         [AtaBook](https://birdcage.atabook.org/)
+  [Strawpage](https://linquinttt76.straw.page)
+ㅤ                      [AtaBook](https://birdcage.atabook.org/)
 
 <br>
 
-</p> <a href=""><img src="https://i.postimg.cc/Qdg41WWx/54-Sem-Titulo-20260722125749.png" width="500" height="auto" align="center"></img></a> <br>
